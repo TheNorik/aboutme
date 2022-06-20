@@ -3,4 +3,4 @@
 👦Male\
 🔵Flowh Profile https://flowh.net/profile?user=Norik \
 🙋‍♂️Friends @InvalidLenni, @benzyyt\
-💚My projects https://github.com/TheNorik/flowhnetwork \
+💚My projects https://github.com/TheNorik/flowhnetwork
